@@ -1,9 +1,5 @@
 # 𝙃𝙚𝙡𝙡𝙤, 𝙄'𝙢 𝙎𝙝𝙖𝙝𝙙 𝙆𝙝𝙖𝙡𝙚𝙙 𝙄𝙗𝙧𝙖𝙝𝙞𝙢 🎨💻
 
-[![](https://img.shields.io/badge/-@your_username-%231DA1F2?style=flat-square&logo=twitter&logoColor=ffffff)](https://twitter.com/your_username)
-[![](https://img.shields.io/badge/-@your_username-%23181717?style=flat-square&logo=github)](https://github.com/your_username)
-[![](https://img.shields.io/badge/-@your_username-%23000000?style=flat-square&logo=codepen)](https://codepen.io/your_username)
-
 𝑰 ❤️ 𝑨𝒓𝒕 & 𝑭𝒓𝒐𝒏𝒕-𝒆𝒏𝒅 𝑫𝒆𝒗𝒆𝒍𝒐𝒑𝒎𝒆𝒏𝒕!
 
 🎨 𝑭𝒊𝒏𝒆 𝒂𝒓𝒕𝒊𝒔𝒕 𝒔𝒑𝒆𝒄𝒊𝒂𝒍𝒊𝒛𝒆𝒅 𝒊𝒏 **𝒆𝒙𝒑𝒓𝒆𝒔𝒔𝒊𝒗𝒆 𝒑𝒂𝒊𝒏𝒕𝒊𝒏𝒈**  
